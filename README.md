@@ -1,0 +1,1 @@
+Join the STEM Street Clubhouse, where kids aged 6-16 can learn coding with Scratch and Python, control electronic components, and discover basic machine learning concepts. Enable your child to develop problem-solving skills, creativity, and a love for STEM in a fun and engaging environment!
